@@ -1,3 +1,3 @@
 # Extreme Pain
 
-A website for my friend's silly idea for a bakery.
+one of these days i will actually make this.. i always laugh when i think of the name
